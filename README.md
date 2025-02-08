@@ -5,7 +5,7 @@ Mobile Legends: Bang Bang (MLBB) is a mobile multiplayer online battle arena (MO
 Gameplay
 In MLBB, two teams of five players compete in real-time matches that typically last between 10 to 30 minutes. Players fight over three lanes to destroy the enemy's towers while defending their own. The game emphasizes skill, strategy, and teamwork, with no pay-to-win elements or hero leveling systems.
 
-<h2><a href="https://allresources.xyz/mobilelegends.html/">░░▒▓██ 🔴➤ GET FREE DICE</a></h2>
+<h2><a href="https://allresources.xyz/mobilelegends.html/">LEARN MORE</a></h2>
 
 Esports Scene
 Moonton has actively engaged in the esports community by organizing regional tournaments known as the Mobile Legends: Bang Bang Professional League (MPL), which serve as qualifiers for the Mobile Legends World Championships. The game was featured in the esports events at the Southeast Asian Games in 2019 and 2023, and it will be included again in 2025.
